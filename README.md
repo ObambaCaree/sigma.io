@@ -1,1 +1,1 @@
-Visit sigma.io u moño!
+Visit sigmabean.github.io u moño!
